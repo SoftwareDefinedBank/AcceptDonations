@@ -14,3 +14,6 @@ Liberapay
 Mighty Networks
 
 https://alternativeto.net/software/buy-me-a-coffee/
+
+https://crowdfundly.com/blog/top-10-buy-me-a-coffee-alternatives-for-you
+
